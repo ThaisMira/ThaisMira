@@ -1,7 +1,7 @@
 ## 🐈‍⬛ _Meu nome é Thais_ 
 - 🐶Gosto de anime/Mangas.
 - 🍕Minha comiga preferida é Tomate.
-- 🎮Gosto de jogar jogos de guerra.
+- 🎮Gosto de jogar jogos de guerra e assistir eles.
 - 🏐Gosto de jogar vôlei.
 - 🍔Gosto de cozinhar.
 
