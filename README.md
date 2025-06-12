@@ -9,4 +9,5 @@
 
 thais.mira.souza@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/Yj18QExe9eoAAAAC/kiki%27s-delivery-service-jiji.gif)
+[![](https://media1.tenor.com/m/Yj18QExe9eoAAAAC/kiki%27s-delivery-service-jiji.gif)](https://tenor.com/iLJ0NaQzswT.gif)
+
